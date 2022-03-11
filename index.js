@@ -1,2 +1,5 @@
 Hola esta es una práctica para aprender a resolver conflictos
-AEEF
+SMCR
+JARZ
+MACS The professor
+OCOC
